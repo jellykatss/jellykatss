@@ -1,5 +1,5 @@
 ## hallooo! gives u some food ( ˵ •̀ ᴗ •́˵) ･
-( <-- ic goes to @yeurei on twt!)
+( <-- couldnt find ic credit, if you know who pls lmk!! ^-^)
 
 🌹| *"Flowing brown hair, fly through the twinkling stars...
 a dream-like magic carpеt ridin’, baby, now you're in my blood."*
