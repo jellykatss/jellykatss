@@ -1,7 +1,7 @@
 ## hallooo! gives u some food ( ˵ •̀ ᴗ •́˵) ･
 ( <-- couldnt find ic credit, if you know who pls lmk!! ^-^)
 
-🌹| *"Paralyzed paradise on my tongue... so alive, I could die, gimme some.. sweet venom!"*
+🌹| *"Paralyzed paradise on my tongue so alive, I could die, gimme some.. sweet venom!"*
 
 <p align="center"> .・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-)
  </p>
