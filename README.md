@@ -1,7 +1,7 @@
 ## hallooo! gives u some food ( ˵ •̀ ᴗ •́˵) ･
 ( <-- couldnt find ic credit, if you know who pls lmk!! ^-^)
 
-🌹| *"Paralyzed paradise on my tongue so alive, I could die, gimme some.. sweet venom!"*
+🌹| *"When you’re forced to turn your back to the dark, you need someone you can really trust.”*
 
 <p align="center"> .・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-)
  </p>
