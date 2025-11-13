@@ -9,7 +9,7 @@
  
  <p align="center"> hihi!! check out my links for info! ^-^ </p>
 
- <p align="center">kat/jelico ⚬ she/they ⚬ 5teen ⚬ indian  </p>
+ <p align="center">kat/jelico ⚬ she/they ⚬ 5teen ⚬ desi  </p>
  <p align="center">  : ̗̀➛ plspls int i would love to be friends!! ♡  </p>
 
 
