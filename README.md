@@ -1,5 +1,5 @@
 ## hallooo! gives u some food ( ˵ •̀ ᴗ •́˵) ･
-( <-- couldnt find ic credit, if you know who pls lmk!! ^-^)
+( <-- ic go to koujisako! ^-^)
 
 🌹| *"When you’re forced to turn your back to the dark, you need someone you can really trust.”*
 
