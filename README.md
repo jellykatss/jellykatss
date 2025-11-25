@@ -14,11 +14,10 @@
 
 
  <p align="center">
-  <img width="460" height="300" src="https://github.com/user-attachments/assets/82d597b3-6a40-4890-9015-7d3b80e47e92">
+  <img width="460" height="300" src="https://github.com/user-attachments/assets/4c5c7461-ffe5-445a-a9e3-209861fd5553">
 </p>
  <p align="center"> .・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-)
  </p>
-
 
 
 
