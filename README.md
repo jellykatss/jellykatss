@@ -1,5 +1,5 @@
-## hallooo! gives u some food ( ˵ •̀ ᴗ •́˵) ･
-( <-- ic go to @sssA_km on twt! ^-^)
+## gives u some food ( ˵ •̀ ᴗ •́˵) ･
+
 
 🌹| *"When you’re forced to turn your back to the dark, you need someone you can really trust.”*
 
