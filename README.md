@@ -1,7 +1,7 @@
 ## gives u some food ( ˵ •̀ ᴗ •́˵) ･
 
 
-🌹| *"When you’re forced to turn your back to the dark, you need someone you can really trust.”*
+🌹| *"We don't pray for love, we just pray for cars.”*
 
 <p align="center"> .・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-
  </p>
