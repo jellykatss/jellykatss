@@ -1,7 +1,7 @@
 ## gives u some food ( ˵ •̀ ᴗ •́˵) ･
 
 
-🌹| *"We don't pray for love, we just pray for cars.”*
+🌹| *"He broke her heart so the world wouldn't.”*
 
 <p align="center"> .・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-.・゜-: ✧ :-
  </p>
