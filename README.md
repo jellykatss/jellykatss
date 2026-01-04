@@ -3,10 +3,9 @@
 </p>
 
  </p>
- <p align="center">
+<p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31iuz3le4lw7j2zss5g62vcg3h6u&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false">
-  </a>
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31iuz3le4lw7j2zss5g62vcg3h6u&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=false">
 </p>
  pic above- frostbite.studios on insta
 
