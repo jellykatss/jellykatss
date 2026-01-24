@@ -10,7 +10,8 @@
 </p>
 
 </p>
- pic above- frostbite.studios on insta
+ pic above- @frostbite.studios on insta
+ pfp- @mofufu_fufu on X
 
 
 
