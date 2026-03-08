@@ -1,5 +1,7 @@
 <p align="center">
   "I have a sword to protect you, but not a crown to have you."
+  <p align="center">
+    YAYYY HAPPY TRACK SEASONNNNNN! i hope it goes well for everyone that runs!! ^_^
 <p align="center">
   <img width="300" height="400" src="https://github.com/user-attachments/assets/e5f7ea77-6848-4842-917a-5f617119d5f3">
 </p>
