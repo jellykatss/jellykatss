@@ -1,6 +1,5 @@
-https://forms.gle/bQjR28ypd999dF5X9     HEYYYY HELP ME WITH A GYM PROJECT EVERYONEEE I NEED RESPONSES PLSSS 🙏
- 
- 
+
+
  <p align="center">
     YAYYY HAPPY TRACK SEASONNNNNN! i hope it goes well for everyone that runs!! ^_^
 <p align="center">
