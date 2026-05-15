@@ -1,7 +1,7 @@
 
 
  <p align="center">
-    YAYYY HAPPY TRACK SEASONNNNNN! i hope it goes well for everyone that runs!! ^_^
+
 <p align="center">
   "I have a sword to protect you, but not a crown to have you."
  
